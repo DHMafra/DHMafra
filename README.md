@@ -2,7 +2,7 @@
 - 👀 I’m interested in tecnology and educacion
 - 🌱 I’m currently learning Análise e Desenvolvimento de Sistemas
 - 💞️ I’m looking to collaborate on Projeto de Construção de Plataformas Educacionais
-- 📫 How to reach me dhmafra@gmail.com; https://www.linkedin.com/in/denisehmafra/
+- 📫 How to reach me https://www.dio.me/users/dhmafra; dhmafra@gmail.com; https://www.linkedin.com/in/denisehmafra/
 - 😄 Pronouns: you, miss
 - ⚡ Fun fact: Iniciando meu curso na terceira idade
 
